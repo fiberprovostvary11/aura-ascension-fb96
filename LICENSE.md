@@ -1,4 +1,4 @@
-
+smart aura ascension Script is the best aura ascension Script, featuring esp and one-hit kill. Safe and powerful for all your needs.
 
 
 
